@@ -10,4 +10,6 @@
 
 - HOW DO I MAKE THIS LOOK RIGHT
 
+^giving up for now, if that bit is here this is unfinished
+
 <img src="https://tinyurl.com/2hwz3zry" alt="">
