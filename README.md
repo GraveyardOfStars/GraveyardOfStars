@@ -1,9 +1,5 @@
 # Vesper
 Collective Repository
 
-
-oh my god how do we work this
-how do people make these look nice
-bro
-
-HOW DO I ADD IMAGES
+<img src="https://tinyurl.com/3xvctx8p" alt="">
+FIGURED OUT HOW TO ADD IMGAES
