@@ -7,7 +7,7 @@
 <p align="center">
 𝜗℘　　◡◡　　vesper  ,   19
 <p align="center">
-❛  D.I.D system     ⸺     Autistic 𓈒
+❛  D.I.D system     ⸺     Baizhu Yumeshipper 𓈒
 <p align="center">
  𓏏𓏏  " my mortality... is no one's concern but mine " .   ♡ॱ𓏽
  <p align="center">
