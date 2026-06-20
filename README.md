@@ -1,17 +1,21 @@
-<img src="https://tinyurl.com/yx89u3p6" alt="">
-
-  - Vesper/Derek Collectively
-
-      - 19 Bodily
-
-      - System!!
-
-      - NON SHARING Baizhu Yumeshipper!
-
-      - very socially awkward, usually with @astrozdreamz, if anything i might ask them to talk for me if i need
-
-      - if you think d3rking is a darkship i better not catch you liking billford or any ship dynamics like them cause that's HYPOCRITICAL
-
-     just check our carrd dawg i give up with this
-
-<img src="https://tinyurl.com/2hwz3zry" alt="">
+<p align="center">
+ <img height="500" width="700" src="https://i.imgur.com/A38pZpp.gif"/>
+</a>
+ <p align="center">
+  <img height="310" width="550" src="https://i.imgur.com/MYJLsqB.png"/>
+<p align="center">
+<p align="center">
+𝜗℘　　◡◡　　vesper  ,   19
+<p align="center">
+❛  D.I.D system     ⸺     Autistic 𓈒
+<p align="center">
+ 𓏏𓏏  " my mortality... is no one's concern but mine " .   ♡ॱ𓏽
+ <p align="center">
+    <a href="">
+ <img height="175" width="215" src="https://i.imgur.com/aI8aKvM.png"/>
+</a>
+     <a href="">
+ <img height="175" width="215" src="https://i.imgur.com/yJEibds.png"/>
+</a>
+<p align="center">
+ <img height="410" width="550" src="https://i.imgur.com/6U2WQzx.png"/>
